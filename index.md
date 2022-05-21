@@ -1,2 +1,2 @@
 ## Welcome to GitHub Pages
-我要暴富
+https://www.youtube.com/
